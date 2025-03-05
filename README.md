@@ -1,16 +1,50 @@
-## Hi there 👋
-
-<!--
-**applisting/applisting** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+- [Doraemon, Nobita, and Maa: Heartwarming Moments & Emotional Journeys](https://www.youtube.com/playlist?list=PLr7THeXd6epDBNbv3QSOJwsBZaICkmeji)
+- [Another End (2024) Movie: Official Trailers, Clips & More!](https://www.youtube.com/playlist?list=PLW8mjqZWcDB7DRRBcnrqO7H5HzObkLkkc)
+- [Epic 2010 Movie Throwback: April 23rd Releases & More!](https://www.youtube.com/playlist?list=PLbMpUVoTF9xwU2iJL2i3mIyhBxe-G4ju2)
+- [2024 Movie Day of the Fight: Official Trailers, Interviews & More!](https://www.youtube.com/playlist?list=PLiuTPcUHXh97hPHGTBeSu_tg8_-XFuf-E)
+- [🔥 2024 Movie Alumbramiento:  Intense Romance & Unexpected Twists!](https://www.youtube.com/playlist?list=PLiuTPcUHXh97kPo0huwmnTKngKfBUn-SX)
+- [Adorable Nobita & Shizuka: Cartoon Pictures, Drawings & More!](https://www.youtube.com/playlist?list=PLRVyf5ybemkhSY1BuBsbYcrXFLuYQF0Sa)
+- [Summer Blockbusters & More: July 2010 Movie Throwback](https://www.youtube.com/playlist?list=PLcSkv3I9gOcqzhfV-Nr_KWykWMRLseMLj)
+- [Veera Dheera Sooran Part 2 (2025): Everything You Need To Know!](https://www.youtube.com/playlist?list=PLZtbAyx5aQQDYqrTL-2r7l1MomK8yxIh-)
+- [Hanamanma (花まんま) 2025 Movie: Trailers, Teasers & More!](https://www.youtube.com/playlist?list=PLyCnCAK2YzkqERL6B5PHlgGDMto8Ush00)
+- [Nobita & Iron Man: Epic Music Mashup Playlist!](https://www.youtube.com/playlist?list=PLglIeBvNJgbz4EwdYEBg5KGIAIY6u_C7p)
+- [2024's Must-See Movie: The Private Eye - Official Trailers, Reviews & More!](https://www.youtube.com/playlist?list=PLHH95_-3jHbmHHOa-3BR8K95F4B8eyqTN)
+- [Nobita's American Adventure: Full Doraemon Episodes in Hindi & More!](https://www.youtube.com/playlist?list=PLQKMDm74kMfU0SKzxWXqFiKDs8iNGoQ_T)
+- [Nobita & Shizuka: The Ultimate Love Story Photo Collection](https://www.youtube.com/playlist?list=PLcSkv3I9gOcruDBgDDIVY95RT4xVuBSCi)
+- [Kill Katie Malone: The 2011 Horror Movie Deep Dive](https://www.youtube.com/playlist?list=PLcSkv3I9gOcqtS0Zf7W42UYeEC5qg8PIG)
+- [Aho Vikramaarka 2024: Full Movie, Songs, & Trailers in Hindi](https://www.youtube.com/playlist?list=PLiuTPcUHXh96BUDMx4ZhR80S_tJq4G5DT)
+- [Peepli Live: A Deep Dive into Indian Politics & Satire (2010)](https://www.youtube.com/playlist?list=PLUrVOq2axMbolbxDS9EeubVspaEgX85y6)
+- [Top Nobita & Shizuka Moments: Best Doraemon Episodes Ever!](https://www.youtube.com/playlist?list=PLnjUErQCRZUMh_vaANXmn9FrHM34F0oHg)
+- [Bagman (2024) Movie: Trailers, Reviews, & More!](https://www.youtube.com/playlist?list=PL1hsELdI-2bC6UWHS6XGNiLQe_NXkCsSE)
+- [Vidente por Acidente (2024): Trailers, Entrevistas e Mais!](https://www.youtube.com/playlist?list=PLEv-krsUOI8vXAQ_XQi14_CREWQp2IYdF)
+- [Epic 2011 European Road Trips: Scenic Drives & Breathtaking Views](https://www.youtube.com/playlist?list=PLXdD-aCkq-3V4stkYXUz-s0x-IAgsfLLy)
+- [Killing Bono (2011) Movie: The Complete Guide & Behind-the-Scenes](https://www.youtube.com/playlist?list=PL1YqYBs_-b74fA7WTJIOZFI_ExVRefw1h)
+- [Три Богатыря. Ни дня без подвига (2024): Все Трейлеры, Обзоры и Новости!](https://www.youtube.com/playlist?list=PL1hsELdI-2bBYcgvj7AMxBjepD4H1b9l6)
+- [Nobita's Untold Stories: A Journey Through His Life](https://www.youtube.com/playlist?list=PL8RWO1B6fFxPJq8AtEfM1NtWohlXY9R-m)
+- [Ultimate 2024 Star Wars Marathon: Episodes I-III & Beyond!](https://www.youtube.com/playlist?list=PLUrVOq2axMbrTyzb3Vioyy2eyP7qeASfZ)
+- [Doraemon & Nobita's New Dinosaur Adventure: Hindi Movie & More!](https://www.youtube.com/playlist?list=PLEWAf62qmaz3oO36eJSKSDtsc9FicRFpb)
+- [Doraemon: Nobita's Earth Symphony - Full Movie & Reviews!](https://www.youtube.com/playlist?list=PLmi-3H7SEN9gz_iV4x1e3-K7opbrPDX9a)
+- [Must-See 2024 & Beyond: Action, Thriller & More!](https://www.youtube.com/playlist?list=PLB_qbJ0Faj3ntLUc7Qwx-WHqCtHx-OOpe)
+- [Kung Fu Panda 4 on Netflix: Everything You Need to Know!](https://www.youtube.com/playlist?list=PLglIeBvNJgbyxvP86eYwdJ0uQyHUKFEa-)
+- [The Turnaround (2024) Movie: Trailers, Reviews & More!](https://www.youtube.com/playlist?list=PL4315PFPI_0k-xJxjBFVm_MIcqiLRiBlb)
+- [2024 Dostoevsky Movie & Series: Trailers, Reviews & More!](https://www.youtube.com/playlist?list=PLtgaQVPIiMBwrPvd_2nxjCoD2EnI8FUeC)
+- [নবীজীর জীবন কাহিনী: Nobita Jibon Kahini - ইসলামিক জীবনী](https://www.youtube.com/playlist?list=PLSGqp-Z4fT91LgxMDJqdThm_xSXxxico4)
+- [Nobita's Baby Adventures: Hilarious Doraemon Moments!](https://www.youtube.com/playlist?list=PLEv-krsUOI8vbcScelSSpbkYoV8cZTx_2)
+- [2011 Movie Releases: November 25th - Trailers & Sneak Peeks](https://www.youtube.com/playlist?list=PLUrVOq2axMbq6clKEBokc-MkU_td0erjm)
+- [A Few Moments of Cheers (2024) Movie: Official Trailers, Reviews & More!](https://www.youtube.com/playlist?list=PLmVa-BlcAB9V_3I5zka3JV6FZKEel4Hwu)
+- [Watch Packers Games on Amazon Prime: Your Ultimate Guide](https://www.youtube.com/playlist?list=PLZvDK059EzD2yKsoQ-pyz7QIrzCglDlYH)
+- [Nintama Rantarou 2011 Movie & More: Complete Guide!](https://www.youtube.com/playlist?list=PLecqWje8-O8q4jRQ-MXyugN5UCRcZK8OI)
+- [2024 Movie Boot Camp: All the Buzzworthy Films!](https://www.youtube.com/playlist?list=PLmp9upiZCeh1D8P9RPGnNiMo6-JhD7oTW)
+- [🔥2024 Movie Mania: Blockbusters, Indies & More!🔥](https://www.youtube.com/playlist?list=PLC9R1rLFJvcbgDQ_F6vPaCZlRTf2gjnl6)
+- [2011 Movie Mania: The Year's Biggest Choices & Cinematic Moments](https://www.youtube.com/playlist?list=PLBMJfGSnVjZOgtQ5L40eVO5CwX6HryrTR)
+- [Pujar Sarki 2024: Full Movie, Songs, & Behind-the-Scenes!](https://www.youtube.com/playlist?list=PLR0jfGJrfRoCl2YXJwKpzeFgARoChsQcq)
+- [Doraemon's First Episode: Nobita and the Little One - A Nostalgic Journey!](https://www.youtube.com/playlist?list=PLbMpUVoTF9xzwui7yWztekt1VbUetmPF1)
+- [Cute Nobita & Shizuka Pencil Sketches: Easy Drawing Tutorials!](https://www.youtube.com/playlist?list=PLaxWmWH_41um8Hxf8bDMk7AoWfcEEIkLm)
+- [Unveiling the Mystery: Nobita's Father's Name & Family Secrets!](https://www.youtube.com/playlist?list=PLexhZRt-kWT4RJKoIwRXIeTZp_SaslcrV)
+- [2024 Movie Releases: Every Little Thing & More!](https://www.youtube.com/playlist?list=PLR0jfGJrfRoCKyBqLVxJvEeJx3EfgG7FJ)
+- [Appudo Ippudo Eppudo (2024): Full Movie, Songs, Reviews & More!](https://www.youtube.com/playlist?list=PLZvDK059EzD3x3XJ5_YuVK7TvRnOrKeaQ)
+- [Is There a Live-Action Moana? 🌊 Dwayne Johnson & Zendaya Updates!](https://www.youtube.com/playlist?list=PLecqWje8-O8oriAarF62XmRebGXDmyML0)
+- [Ullozhukku 2024: Malayalam Movie Reviews, Explanations & More!](https://www.youtube.com/playlist?list=PL4315PFPI_0luUrhWjR-weHXAUljqx8iY)
+- [Nobita & Shizuka's Wedding: All Doraemon Movies & Moments!](https://www.youtube.com/playlist?list=PLZtbAyx5aQQAAaSiiIHSSaXJLk-RMNK5n)
+- [2024 Türk Korku Filmleri: Cin, Şeytan ve Gizem Dolu Bir Yıl!](https://www.youtube.com/playlist?list=PLuCJkpZYxxgIPbtS-FvkvYKw1I5SBv8ls)
+- [Rann (2010) Movie: Amitabh Bachchan's Powerful Political Thriller - Full Movie & More!](https://www.youtube.com/playlist?list=PLX1cEO4Gv4LD-Ia-YsDypnjgT3Y5J_avS)
